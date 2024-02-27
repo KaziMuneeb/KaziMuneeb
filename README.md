@@ -6,7 +6,6 @@ I am Kazi Muneeb, an undergraduate student doing my Computer Science and Enginee
 
 ### Reach 🌐 me via:
 
-* Porfolio 🔗 https://_____
 * LinkedIn 🔗 https://www.linkedin.com/in/kazi-muneeb
 
 
