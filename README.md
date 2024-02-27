@@ -1,4 +1,3 @@
-![LinkedIn Poster](link/to/png)
 
 ### Greetings
 
